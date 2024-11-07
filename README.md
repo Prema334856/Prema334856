@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **primadas142@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1sxry9kwGS39iF28AldnW2a-zbY4q4Tgw/view?usp=sharing](https://drive.google.com/file/d/1sxry9kwGS39iF28AldnW2a-zbY4q4Tgw/view?usp=sharing)
+- 📄 Know about my experiences [my cv](https://drive.google.com/file/d/1sxry9kwGS39iF28AldnW2a-zbY4q4Tgw/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
